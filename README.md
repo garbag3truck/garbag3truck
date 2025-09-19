@@ -6,7 +6,9 @@ HHAI oke... feel free to c + h at any time!!!! uhhh im 90% of of the time in doc
 
 im in a bunch of fandoms so liek ok hi
 
-regis im in: ayz, spt, sbr, sdr, ebay, O🦇B,ybp, bug (not that active in most) claims: john laurens in almost all of them, shedletsky in spt, blue parrot on orebats
+regis im in: ayz, spt, ybp, cb, s🐾d, ebay
+extra: im also in project: colorfes
+mostly known as john laurens❤️‍🩹❤️‍🩹❤️‍🩹
 
 hamilton tiktok:: workingonthree (follow me im so sigma) discord:: johnlaurns
 
