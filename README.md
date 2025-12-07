@@ -32,4 +32,4 @@ tiktok:: workingonthree (follow me im so amazing) discord:: johnlaurns
 
 ask me about my interests oke. watebroy x prjism./ plsask me about wterboy x prism/
 
-oki 
+oki sign my tree or wtv 
