@@ -11,15 +11,16 @@
 <picture>
   <img src= "https://files.catbox.moe/cuce34.webp" align="middle"  >
 </picture>ㅤ
+
 <picture>
   <img src= "https://files.catbox.moe/5btn8d.webp" align="middle" >
 </picture>ㅤ
+
 <picture>
   <img src= "https://files.catbox.moe/m8azw9.webp" align="middle" >
 </picture>ㅤ
-<picture>
-  <img src= "https://files.catbox.moe/e8qx56.webp" align="middle" >
-</picture>
+
+
 
 
 haiii im rat aha duh. feel free to interact or c+h unless i have in mmy name like dni or sum ok. ! 
